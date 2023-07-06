@@ -44,4 +44,4 @@ Every universe has its rules. This one follows the MIT License. Why? Because sha
 
 ## Ping me! 📧
 
-Got any queries or just want to chat about potential collaborations? Feel free to jump into my inbox at john.doe@example.com or let's connect on [LinkedIn](www.linkedin.com/in/daksh-shukla-53a905202).
+Got any queries or just want to chat about potential collaborations? Feel free to jump into my inbox at daksh1.mitmpl2022@learner.manipal.edu or let's connect on [LinkedIn](www.linkedin.com/in/daksh-shukla-53a905202).
